@@ -17,4 +17,4 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on nowhere
 - 🤔 I’m looking for help with a lot of things
 - 💬 Ask me about every thing you want to know
-- 📫 How to reach me: 3257912523@qq.com
+- 📫 How to reach me: wjxamz077@gmail.com
